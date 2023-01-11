@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on Webpages
 - 📫 To reach me Email Me At devashishyadav277@gmail.com Or mahesh.yadavzoom@gmail.com
 
-DevashishYadavTheProCoder2011/DevashishYadavTheProCoder2011 is ✨ special ✨ 
+DevashishYadavTheProCoder2011 is ✨ special ✨ 
 
